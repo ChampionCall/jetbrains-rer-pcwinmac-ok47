@@ -1,4 +1,4 @@
-# 
+# Profesional JetBrains Rider herramientas para Mac OS | Exclusivo JetBrains Rider herramientas para PC Windows. Con integración de terminal y explorador de archivos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
