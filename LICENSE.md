@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://ChampionCall.github.io/jetbrains-rer-pcwinmac-ok47/) |
  |---------------------|----------------------:|
 
 
